@@ -1,2 +1,0 @@
-# Free-Script
-sd
